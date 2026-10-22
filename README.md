@@ -25,3 +25,25 @@
     <td><a href="https://pronouns.cc/@WanderersWife"> PronounsCard</a></td>
   </tr>
 </table>
+
+<p align="center">
+ Noelle Holiday irl!!
+</p>
+<p align="center">
+adult! minors iwc all times, under 15 dni or iwec!!
+</p>
+<p align="center">
+Kriselle lover!! Noelle heavy fictkin!!
+</p>
+<p align="center">
+did, audhd, ocd, dyslexia, anxiety!
+</p>
+<p align="center">
+iwc around me at all times!! please be patient with me!!
+</p>
+<p align="center">
+Voidsharing riako soulbonded Wanderer Yumeshipper. doubles DO NOT INTERACT.
+</p>
+<p align="center">
+tfc, dw, ddlc, hellaverse, dni unless strictly friends!
+</p>
