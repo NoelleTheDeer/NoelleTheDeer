@@ -10,9 +10,7 @@
 </p>
 
 <p align="center">
-      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_a784a2922a4ab4914e235c626a745f22_bf26a6b1_400.png" align="left">
-      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_ee683623c1a10c97f346d35a1b6e33e3_a814a107_400.png">
-      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_a63520b1093bba3158c61aa2e24296c7_c2748127_400.png" align="right">
+  <img width="200" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/bf4df4744436143cc56cd756e005f624d2c0c6f6/tumblr_8da9568a036b84302a1d76fd043429aa_176f8c86_250.png">
 </p>
 
 <p align="center">
@@ -38,6 +36,7 @@ Kriselle lover!! Noelle heavy fictkin!!
 <p align="center">
 did, audhd, ocd, dyslexia, anxiety!
 </p>
+
 <p align="center">
 iwc around me at all times!! please be patient with me!!
 </p>
@@ -47,3 +46,17 @@ Voidsharing riako soulbonded Wanderer Yumeshipper. doubles DO NOT INTERACT.
 <p align="center">
 tfc, dw, ddlc, hellaverse, dni unless strictly friends!
 </p>
+
+<p align="center">
+  <img width="200" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/bf4df4744436143cc56cd756e005f624d2c0c6f6/tumblr_257528000efe6efa679646660eeeefc2_d48b5ea1_250.jpg">
+</p>
+
+<p align="center">
+  <img width="1000" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/8b0b88c5c44bbeb3cc8cbeaf0901684bbf0037db/tumblr_ddb90fa3e8a5052dc6e40633005a31a9_8df26a48_1280.png">
+</p>
+
+<p align="center">
+  <img width="700" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/bf4df4744436143cc56cd756e005f624d2c0c6f6/tumblr_8fd724dcfe892e7ded3f505de9aa67f2_aad8e88c_640.jpg">
+</p>
+
+
