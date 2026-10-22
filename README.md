@@ -10,6 +10,12 @@
 </p>
 
 <p align="center">
+      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_a784a2922a4ab4914e235c626a745f22_bf26a6b1_400.png" align="left">
+      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_ee683623c1a10c97f346d35a1b6e33e3_a814a107_400.png">
+      <img width="200"src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/50001ce383d041be8a2782c4927368c3ea81b789/tumblr_a63520b1093bba3158c61aa2e24296c7_c2748127_400.png" align="right">
+</p>
+
+<p align="center">
   <img width="1000" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/8b0b88c5c44bbeb3cc8cbeaf0901684bbf0037db/tumblr_ddb90fa3e8a5052dc6e40633005a31a9_8df26a48_1280.png">
 </p>
 
