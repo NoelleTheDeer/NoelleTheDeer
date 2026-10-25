@@ -14,6 +14,10 @@
 </p>
 
 <p align="center">
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFBF00&width=435&lines=Hey+kris+whats+up?;didja+lose+your+pencil+again?;+Here!+you+want+the+candycane+one,;or+the+one+with+lights+on+it?" /></a>
+</p>
+
+<p align="center">
   <img width="1000" src="https://github.com/NoelleTheDeer/NoelleTheDeer/blob/8b0b88c5c44bbeb3cc8cbeaf0901684bbf0037db/tumblr_ddb90fa3e8a5052dc6e40633005a31a9_8df26a48_1280.png">
 </p>
 
