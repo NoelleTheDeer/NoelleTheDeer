@@ -24,7 +24,6 @@
 <p align="center"table>
   <tr>
     <td><a href="https://github.com/WanderersWife"> Main Github</a></td>
-    <td><a href="https://pronouns.cc/@WanderersWife"> PronounsCard</a></td>
   </tr>
 </table>
 
